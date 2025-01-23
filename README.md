@@ -1,1 +1,3 @@
-# Integrity-and-Anti-Corruption-Course
+# Reflection
+Poster/Video
+- This project gave us the ability to understand how much integrity means and how corruption destroys an ordinary life, not to mention how essential it is for getting jobs due to degree forging. In the process, we have developed in-depth discussion skills on the topics communicated but also learned valuable skills such as time management and teamwork. Despite all the odds, it was easy to get over them while working as a group. Every member was responsibly playing their role, which has made this project a meaningful one and a positive contribution to the personal and professional development of our beings.
